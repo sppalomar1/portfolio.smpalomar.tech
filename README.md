@@ -1,0 +1,1 @@
+# portfolio.smpalomar.tech
